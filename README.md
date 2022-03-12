@@ -29,3 +29,6 @@ Broken Link Hijacking: https://twitter.com/micha3lb3n/status/1289939398797037568
 ADMIN PORTAL BYPASS CHECK: https://twitter.com/SalahHasoneh1/status/1287825026134269958/photo/1
 
 ACCOUNT TAKEOVER: https://twitter.com/Muhe76355002/status/1287250650028482562/photo/1
+
+
+@0xrutvik1
